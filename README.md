@@ -1,1 +1,1 @@
-![alt text](https://docs.google.com/uc?id=16tdEB6KKhCrOmJ76NozKNtTwsdgsa-fH)
+![alt text](https://docs.google.com/uc?id=18nav7JsepwMn7jm0lqdS7qp2edeays0C)
